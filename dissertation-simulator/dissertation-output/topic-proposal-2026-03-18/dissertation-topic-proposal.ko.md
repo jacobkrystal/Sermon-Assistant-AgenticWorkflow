@@ -5,8 +5,10 @@
 **제안 제목:**
 **신흥시장에서의 통합 헬스케어 서비스 생태계 구축: 다산업 기업가 경험이 필리핀 투석센터 혁신에 미치는 영향**
 
-**학위 과정:** 경영학 박사 (DBA)
+**학위 과정:** Doctor in Business Administration — Hospitality and Tourism Management (DBAHTM)
+**대학교:** Holy Angel University, Angeles City, Pampanga, Philippines
 **일자:** 2026년 3월
+**지도교수:** [확정 — 공식 임명 대기 중]
 
 ---
 

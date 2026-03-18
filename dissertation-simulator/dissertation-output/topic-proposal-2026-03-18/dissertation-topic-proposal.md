@@ -5,10 +5,11 @@
 **Proposed Title:**
 **Building an Integrated Healthcare Service Ecosystem in an Emerging Market: How Cross-Industry Entrepreneurial Experience Shapes Dialysis Care Innovation in the Philippines**
 
-**Degree Program:** Doctor of Business Administration (DBA)
+**Degree Program:** Doctor in Business Administration — Hospitality and Tourism Management (DBAHTM)
+**Institution:** Holy Angel University, Angeles City, Pampanga, Philippines
 **Candidate:** [Name]
 **Date:** March 2026
-**Advisor:** To be assigned
+**Advisor:** [Assigned Professor — confirmed, pending formal appointment]
 
 ---
 
